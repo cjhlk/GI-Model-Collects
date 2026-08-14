@@ -18,3 +18,18 @@
 
 [5.8](https://www.bilibili.com/blackboard/era/8uQYEO1clVVFBfPc.html)
 
+[6.0](https://www.bilibili.com/blackboard/era/XaW8EPOQrWcPYK3e.html)
+
+[6.2](https://live.bilibili.com/blackboard/era/KLdI4OlEa3fnzzpR.html)
+
+[6.3](https://www.bilibili.com/blackboard/era/tSvcaZvJBWySYmrt.html)
+
+[6.4](https://www.bilibili.com/blackboard/era/2FTqBQ9UhqPlwoFa.html)
+
+[6.5](https://www.bilibili.com/blackboard/era/N9XXbVOVzCtNGkEu.html)
+
+[6.6](https://www.bilibili.com/blackboard/era/n2drQa9NUK5Xruku.html)
+
+[6.7](https://www.bilibili.com/blackboard/era/pwamk8wIpoip4GFN.html)
+
+[7.0](https://www.bilibili.com/blackboard/era/fzm1FNYHkXQC9pPl.html)
